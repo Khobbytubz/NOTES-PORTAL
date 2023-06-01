@@ -1,0 +1,4 @@
+THIIS BASICALLY A PROJECT CALLED NOTES-PORTAL
+BY:
+Isaac odei sarpong &
+Philip darko
